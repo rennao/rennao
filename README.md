@@ -1,7 +1,7 @@
 👋 Hi, I’m renner an Dev Jr
 I’m interested in learn programation
 I’m currently learning html,javascript, css and react
-I’m looking to collaborate on creating new projects a
+I’m looking to collaborate on creating new projects
 How to reach me discord: blinbas. email: rennerfag@gmail.com
  Pronouns: he/him
 
